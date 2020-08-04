@@ -1,2 +1,5 @@
-# parasietair-kwaadaardig-besmettelijk-virus
-gemeente rottetdam
+parasietair-kwaadaardig-besmettelijk-virus
+==========================================
+
+scheiding van grondwet en burger
+
